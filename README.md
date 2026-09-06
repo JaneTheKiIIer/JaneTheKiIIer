@@ -6,7 +6,7 @@
 
 <summary>$\color{#9F1919}\text{Notes}$</summary>
 
-$\color{#DB5282}\text{Heyo , this is my 2nd account ! Go follow my main @ ManicCentipede !}$
+$\color{#DB5282}\text{GH used for Ponytown}$
 
 </details>
 
