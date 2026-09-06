@@ -20,10 +20,23 @@ $\color{#9F1919}\text{I block freely and curate my space however I see fit .}$
     <img src="https://i.ibb.co/zWCJm2Yg/image-removebg-preview1.png"/>
 </a>
 
-
 ***_<p align="center">![](https://komarev.com/ghpvc/?username=FranticCentipede&style=plastic&color=9F1919&abbreviated=true&label=Killers+Hunted&?format=long&?labelColor=C290F7)_***
 
 <div align="center">
+
+<div align="center">
+
+<details>
+
+<summary>$\color{#9F1919}\text{About}$</summary>
+
+$\color{#9F1919}\text{Jane The Killer Fictionkin}$ $\color{#707070}\scriptsize\text{( pancharakin , permakinflux ) .}$
+
+$\color{#9F1919}\text{Doubles strictly DNI , I'm also uncomfortable with cosplayers of my fictotype(s) .}$
+
+</details>
+
+</div>
 
 
 
