@@ -6,7 +6,7 @@
 
 <summary>$\color{#9F1919}\text{Notes}$</summary>
 
-$\color{#DB5282}\text{GH used for Ponytown}$
+$\color{#9F1919}\text{GH used for Ponytown}$
 
 </details>
 
