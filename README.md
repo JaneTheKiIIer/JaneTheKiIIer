@@ -30,7 +30,7 @@ $\color{#9F1919}\text{I block freely and curate my space however I see fit .}$
 
 <summary>$\color{#9F1919}\text{About}$</summary>
 
-$\color{#9F1919}\text{Jane The Killer Fictionkin}$ $\color{#707070}\scriptsize\text{( pancharakin , permakinflux ) .}$
+$\color{#9F1919}\text{Jane The Killer , Jane Everlasting Fictionkin}$ $\color{#707070}\scriptsize\text{( polycharakin , permakinflux ) .}$
 
 $\color{#9F1919}\text{Doubles strictly DNI , I'm also uncomfortable with cosplayers of my fictotype(s) .}$
 
