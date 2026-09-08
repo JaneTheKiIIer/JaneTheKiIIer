@@ -12,6 +12,8 @@ $\color{#9F1919}\text{W2I if unresponsive ; I'm probably off-tab or AFK .}$
 
 $\color{#9F1919}\text{I block freely and curate my space however I see fit .}$
 
+$\color{#9F1919}\text{I'm lazy to make this look good but I will eventually}$
+
 </details>
 
 </div>
