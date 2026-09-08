@@ -34,7 +34,6 @@ $\color{#9F1919}\text{Jane The Killer , Jane Everlasting Fictionkin}$ $\color{#7
 
 $\color{#9F1919}\text{Doubles strictly DNI , I'm also uncomfortable with cosplayers of my fictotype(s) .}$
 
-$\color{#9F1919}\text{Ships DNI unless canon .}$
 
 </details>
 
