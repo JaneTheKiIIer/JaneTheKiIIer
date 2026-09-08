@@ -22,7 +22,7 @@ $\color{#9F1919}\text{I'm lazy to make this look good but I will eventually}$
     <img src="https://i.ibb.co/zWCJm2Yg/image-removebg-preview1.png"/>
 </a>
 
-***_<p align="center">![](https://komarev.com/ghpvc/?username=FranticCentipede&style=plastic&color=9F1919&abbreviated=true&label=Killers+Hunted&?format=long&?labelColor=C290F7)_***
+***_<p align="center">![](https://komarev.com/ghpvc/?username=FranticCentipede&style=plastic&color=9F1919&abbreviated=true&label=Predators+Hunted&?format=long&?labelColor=C290F7)_***
 
 <div align="center">
 
